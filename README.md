@@ -1,2 +1,1 @@
-# akathistos
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1ic4ifp06nsum5vlqqv7sip42&amp;cover_image=true&amp;theme=default&amp;show_offline=false&amp;background_color=121212&amp;interchange=false&amp;bar_color=b71515)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1ic4ifp06nsum5vlqqv7sip42&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=1ic4ifp06nsum5vlqqv7sip42&redirect=true)
