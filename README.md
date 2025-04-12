@@ -10,8 +10,11 @@
 </div>
 
 <p align="center">
+  <img src="https://i.imgur.com/oXjDAH4.gif" />
+<div align="center">
+<p align="center">
   <img src="https://i.imgur.com/GSdZaE5.gif" />
 <div align="center">
 <p align="center">
-  <img src="https://i.imgur.com/oXjDAH4.gif" />
+  <img src="https://i.imgur.com/zc3PsuI.gif" />
 <div align="center">
