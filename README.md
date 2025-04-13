@@ -5,8 +5,6 @@
   
 *he ⋅ it*  ༓  *en/de*
 
-*i'm a mortician... ama*
-
 *i like beer and my wife*
 </div>
 
