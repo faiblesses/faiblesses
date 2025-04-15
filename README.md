@@ -3,7 +3,7 @@
   <img src="https://i.imgur.com/T5rr5m3.png" />
 <div align="center">
   
-*he ⋅ it*  ༓  *en/de*
+*he ⋅ it*  ♉︎  *en/de*
 
 *i like beer and my wife*
 </div>
