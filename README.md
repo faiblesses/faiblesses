@@ -17,11 +17,9 @@
   
 *afk often due to class and work.*
 
-*feel free to sit or whisper, ill try*
+*feel free to sit or whisper*
 
-*to reply if i have the energy*
-
-
+*rumored to "enjoy things"*
 
 
 
@@ -32,7 +30,6 @@
 <img src="https://i.imgur.com/7hn9W6D.png" />
 <div align="center">
 
-⠀⠀
 
 
 <p align="center">
