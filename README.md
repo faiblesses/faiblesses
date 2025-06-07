@@ -14,12 +14,12 @@
 <div align="center">
 
 
+
+*rumored to "enjoy things"*
   
 *afk often due to class and work*
 
 *feel free to sit or whisper*
-
-*rumored to "enjoy things"*
 
 
 
