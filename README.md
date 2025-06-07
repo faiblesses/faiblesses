@@ -21,8 +21,9 @@
 
 *feel free to sit or whisper*
 
-
-
+<p align="center">
+<img src="https://i.imgur.com/vXVhfqh.gif" />
+<div align="center">
 <div align="center">
 ⠀⠀
 
