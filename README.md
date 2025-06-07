@@ -15,7 +15,7 @@
 
 
   
-*afk often due to class and work.*
+*afk often due to class and work*
 
 *feel free to sit or whisper*
 
