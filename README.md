@@ -15,9 +15,9 @@
 
 
 
-*rumored to "enjoy things"*
+*i don't play often anymore*
   
-*afk often due to class and work*
+*usually afk due to class and work*
 
 *feel free to sit or whisper*
 
