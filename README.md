@@ -1,17 +1,43 @@
 <p align="center">
-  <a href="https://open.spotify.com/track/6YpIVWErIzMrR6E7tIiz9K?si=ac3e0fb504e54798">
-  <img src="https://i.imgur.com/T5rr5m3.png" />
+<img src="https://i.imgur.com/ne3k4AT.png" />
 <div align="center">
+
+
+<p align="center">
+<a href=""><img src="https://readme-typing-svg.demolab.com?font=Mrs+Saint+Delafield&duration=3500&pause=1000&color=F0F6FCDC&center=true&vCenter=true&multiline=true&width=435&lines=Meister+des+Mordes%2C+dieser+Tanz+ist+Grausamkeit.+" alt="Typing SVG" /></a>
+</p>
+
+<p align="center">
+<img src="https://i.imgur.com/j8F7IKN.png" />
+<div align="center">
+
   
-*he ⋅ it*  ♉︎  *en/de*
-
-*i like beer and my wife*
-</div>
-
 <p align="center">
-  <img src="https://i.imgur.com/GSdZaE5.gif" />
+<img src="https://i.imgur.com/ITOqzbk.gif" />
 <div align="center">
 
+
+  
+*afk often due to class and work.*
+
+*feel free to sit or whisper, ill try*
+
+*to reply if i have the energy*
+
+
+
+
+
+<div align="center">
+⠀⠀
+
 <p align="center">
-  <img src="https://i.imgur.com/oXjDAH4.gif" />
+<img src="https://i.imgur.com/7hn9W6D.png" />
+<div align="center">
+
+⠀⠀
+
+
+<p align="center">
+<img src="https://i.imgur.com/p8QyNY8.png" />
 <div align="center">
