@@ -13,9 +13,7 @@
 <img src="https://i.imgur.com/ITOqzbk.gif" />
 <div align="center">
 
-
-
-*i don't play often anymore*
+*he*. *no dni*. *eng deu pyc.*
   
 *usually afk due to class and work*
 
