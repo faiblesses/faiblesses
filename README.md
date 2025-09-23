@@ -19,6 +19,8 @@
 
 *feel free to sit or whisper*
 
+*yes i'm the guy who's an embalmer*
+
 ⠀⠀
 
 <p align="center">
