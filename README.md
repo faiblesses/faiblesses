@@ -13,7 +13,7 @@
 <img src="https://i.imgur.com/ITOqzbk.gif" />
 <div align="center">
 
-*he*. *no dni*. *eng deu pyc.*
+*he*. *no dni*. *multilingual.*
   
 *usually afk due to class and work*
 
