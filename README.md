@@ -17,7 +17,7 @@
 
 *feel free to sit or whisper*
 
-*yes i'm the guy who's an embalmer*
+*yes i'm the one who's an embalmer*
 
 ⠀⠀
 
