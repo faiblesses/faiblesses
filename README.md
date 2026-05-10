@@ -5,5 +5,5 @@
 <div align="center"></a>
     
 <p align="center"><a href="https://elven.straw.page/">
-<img src="https://i.ibb.co/sJdvyHnf/1485624630294347948.webp" />
+<img src="https://i.imgur.com/SnaRJRs.png" />
 <div align="center"></a>
