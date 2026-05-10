@@ -10,7 +10,7 @@
 <div align="center"></a>
     
 <p align="center"><a href="https://elven.straw.page/">
-<img src="https://i.ibb.co/cczJPgqv/Gqm-TBz-YWIAAAo4-T-1-removebg-preview-2-1.png" />
+<img src="https://i.ibb.co/sJdvyHnf/1485624630294347948.webp" />
 <div align="center"></a>
 
 
