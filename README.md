@@ -1,11 +1,25 @@
 <p align="center">
-<img src="https://i.ibb.co/bjTYP7v4/imageedit-16-5442862895.png" title="meanbossart" />
+<img src="https://i.imgur.com/ne3k4AT.png" />
 <div align="center">
+
+
+
+<p align="center">
+<img src="https://i.imgur.com/j8F7IKN.png" />
+<div align="center">
+
     
 <p align="center"><a href="https://github.com/1fane">
-<img src="https://i.ibb.co/xK9fDzM4/tumblr-ebc8bd4baf953eccc4def61ce959ad4f-c2362ad0-2048-removebg-preview-1.png" />
+<img src="https://i.ibb.co/4gW03bVv/dasha.png" title= "meanbossart" />
 <div align="center"></a>
-<p align="center">
-<img src="https://i.ibb.co/fYYsHqxt/imageedit-20-7933160876.png" />
-<div align="center">
+
     
+<p align="center">
+<img src="https://i.imgur.com/7hn9W6D.png" />
+<div align="center">
+
+
+
+<p align="center">
+<img src="https://i.imgur.com/p8QyNY8.png" />
+<div align="center">
