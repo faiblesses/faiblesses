@@ -9,10 +9,7 @@
 <div align="center">
 
     
-<p align="center"><a href="https://github.com/1fane">
-<img src="https://i.ibb.co/4gW03bVv/dasha.png" title= "meanbossart" />
-<div align="center"></a>
-
+![Typing](https://readme-typing-svg.demolab.com?font=Mrs+Saint+Delafield&size=28&duration=2400&pause=1&color=E4E4E4E1&center=true&vCenter=true&multiline=true&repeat=false&width=350&height=100&lines=Usually+afk+due+to+class+and+work%2C;but+feel+free+to+sit+or+whisper.)
     
 <p align="center">
 <img src="https://i.imgur.com/7hn9W6D.png" />
